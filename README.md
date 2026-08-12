@@ -1,1 +1,0 @@
-# baranpatlar.github.io
